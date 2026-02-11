@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **alihgad2@gmail.com**
 
-- 📄 Know about my experiences in [My CV] (https://drive.google.com/file/d/1U-VYuAMv-9ovbvs4Bky2ubk8Rpm0u02w/view?usp=drive_link)
+- 📄 Know about my experiences [My CV](https://drive.google.com/file/d/1U-VYuAMv-9ovbvs4Bky2ubk8Rpm0u02w/view?usp=drive_link)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
