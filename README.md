@@ -7,11 +7,11 @@
 
 - 🌱 I’m currently learning **Python**
 
-- 👨‍💻 All of my projects are available at [https://port-folio-dun-three.vercel.app/](https://port-folio-dun-three.vercel.app/)
+- 👨‍💻 All of my projects are available at my [Portfolio](https://port-folio-dun-three.vercel.app/)
 
 - 📫 How to reach me **alihgad2@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1G7u4AGe88D-SIllVs8tAkxXVjyCmZJ0k/view?usp=drivesdk](https://drive.google.com/file/d/1G7u4AGe88D-SIllVs8tAkxXVjyCmZJ0k/view?usp=drivesdk)
+- 📄 Know about my experiences in [My CV] (https://drive.google.com/file/d/1U-VYuAMv-9ovbvs4Bky2ubk8Rpm0u02w/view?usp=drive_link)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
